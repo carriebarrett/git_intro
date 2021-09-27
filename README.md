@@ -1,1 +1,2 @@
 Carrie Barrett
+barretca@oregonstate.edu
